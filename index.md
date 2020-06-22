@@ -10,3 +10,5 @@ Weltmeeren unterwegs. Sie erlebt spannende Abenteuer mit den Nachbarskindern Tho
 * abenteuerlustig
 * hilfsbereit
 * ungewöhnlich
+
+Pippi: > Ich mach mir die Welt widewide wie sie mir gefällt.
