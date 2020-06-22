@@ -12,3 +12,5 @@ Weltmeeren unterwegs. Sie erlebt spannende Abenteuer mit den Nachbarskindern Tho
 * ungewöhnlich
 
 Pippi: > Ich mach mir die Welt widewide wie sie mir gefällt.
+
+<img src="https://commons.wikimedia.org/wiki/File:Harisny%C3%A1s_Pippy.jpg"/>
